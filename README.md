@@ -16,7 +16,7 @@ ___
 >
 > :octocat: Don't forget to check out! :point_right: [GURU BOT](https://github.com/Guru322/GURU-BOT)
 
-[![STAR-MD-V2](https://i.imgur.com/2gd0YRc.jpeg)](https://whatsapp.com/channel/0029VaBcXo4JJhzW9c1uVD2X)
+[![STAR-MD-V2](https://telegra.ph/file/08a6201f97463ac160edf.jpg)](https://whatsapp.com/channel/0029VaBcXo4JJhzW9c1uVD2X)
 </p>
 
    
